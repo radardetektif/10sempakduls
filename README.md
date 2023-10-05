@@ -1,0 +1,2 @@
+# 10sempakduls
+gorengan mas
